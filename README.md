@@ -1,2 +1,0 @@
-# kimlindberg.com
-kimlindberg.com
